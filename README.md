@@ -12,7 +12,9 @@
 
 [The 11 best science fiction and fantasy novels of 2016](https://www.theverge.com/2016/12/28/13792040/sci-fi-fantasy-book-year-in-review-best-of-2016)
 
+[23 Best Cyberpunk Books](https://best-sci-fi-books.com/23-best-cyberpunk-books/)
 
+[List of cyberpunk works](https://en.wikipedia.org/wiki/List_of_cyberpunk_works)
 
 ## games
 
