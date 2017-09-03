@@ -23,6 +23,7 @@
 ## websites
 
 [The Cyberpunk Database](https://cyberpunkdatabase.net/)
+
 [The Cyberpunk Project - Information Database](http://project.cyberpunk.ru/idb/)
 
 ## discussions
