@@ -20,6 +20,8 @@
 
 [Best cyberpunk anime](http://www.anime-planet.com/anime/tags/cyberpunk)
 
+[Cyberpunk Anime: A Comprehensive List of Everything](https://www.exolymph.news/2016/06/04/cyberpunk-anime-comprehensive-list/)
+
 ## games
 
 * Invisible, Inc.
