@@ -48,3 +48,5 @@
 [Capturing the essence of Cyberpunk](https://scifi.stackexchange.com/questions/2383/capturing-the-essence-of-cyberpunk/2384)
 
 [Cyberpunk in 2017 - discussion](https://www.reddit.com/r/Cyberpunk/comments/6d0vxo/cyberpunk_in_2017_discussion/)
+
+[Cyberpunk or Retrofuturism](https://www.reddit.com/r/RetroFuturism/comments/64i5p2/cyberpunk_or_retrofuturism/)
