@@ -19,3 +19,12 @@
 * Anachronox
 * Binary Domain
 * Rez
+
+## websites
+
+[The Cyberpunk Database](https://cyberpunkdatabase.net/)
+[The Cyberpunk Project - Information Database](http://project.cyberpunk.ru/idb/)
+
+## discussions
+
+[Capturing the essence of Cyberpunk](https://scifi.stackexchange.com/questions/2383/capturing-the-essence-of-cyberpunk/2384)
