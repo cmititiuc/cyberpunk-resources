@@ -18,6 +18,8 @@
 
 [Cyberpunk Books for Console Cowboys Everywhere](https://theportalist.com/cyberpunk-books-for-console-cowboys-everywhere)
 
+[Best cyberpunk anime](http://www.anime-planet.com/anime/tags/cyberpunk)
+
 ## games
 
 * Invisible, Inc.
