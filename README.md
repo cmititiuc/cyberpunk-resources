@@ -10,6 +10,9 @@
 
 [Here Are 21 Essential Cyberpunk Books That You Absolutely Should Read](https://www.gizmodo.com.au/2016/01/the-essential-cyberpunk-reading-list/)
 
+[The 11 best science fiction and fantasy novels of 2016](https://www.theverge.com/2016/12/28/13792040/sci-fi-fantasy-book-year-in-review-best-of-2016)
+
+
 
 ## games
 
