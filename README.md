@@ -16,6 +16,8 @@
 
 [List of cyberpunk works](https://en.wikipedia.org/wiki/List_of_cyberpunk_works)
 
+[Cyberpunk Books for Console Cowboys Everywhere](https://theportalist.com/cyberpunk-books-for-console-cowboys-everywhere)
+
 ## games
 
 * Invisible, Inc.
