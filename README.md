@@ -57,6 +57,8 @@
 
 [Cyberpunk or Retrofuturism](https://www.reddit.com/r/RetroFuturism/comments/64i5p2/cyberpunk_or_retrofuturism/)
 
+[Cyberpunk Anime: A Comprehensive List of Everything](https://www.reddit.com/r/Cyberpunk/comments/4mlbci/cyberpunk_anime_a_comprehensive_list_of_everything/)
+
 ## videos
 
 [Cyberpunk Anime](https://www.youtube.com/watch?v=23HPiGe6WW4)
