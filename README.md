@@ -67,6 +67,10 @@
 
 [Why Are There So Few Modern Cyberpunk Games?](https://www.reddit.com/r/Games/comments/2gh33s/why_are_there_so_few_modern_cyberpunk_games/)
 
+[Realistic cyberpunk](https://www.reddit.com/r/suggestmeabook/comments/2tmund/realistic_cyberpunk/)
+
+[Post-Cyberpunk: What are the most realistic (likely) futures you've seen in media?](https://www.reddit.com/r/Cyberpunk/comments/4e2bnv/postcyberpunk_what_are_the_most_realistic_likely/)
+
 ## videos
 
 [Cyberpunk Anime](https://www.youtube.com/watch?v=23HPiGe6WW4)
