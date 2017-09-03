@@ -4,6 +4,13 @@
 
 [The most interesting cyberpunk games you can play right now](http://www.gamesradar.com/best-cyberpunk-games/)
 
+[7 Dispatches from the New Wave of Cyberpunk](https://www.barnesandnoble.com/blog/sci-fi-fantasy/7-dispatches-new-wave-cyberpunk/)
+
+[Cyberpunk](https://www.goodreads.com/genres/cyberpunk)
+
+[Here Are 21 Essential Cyberpunk Books That You Absolutely Should Read](https://www.gizmodo.com.au/2016/01/the-essential-cyberpunk-reading-list/)
+
+
 ## games
 
 * Invisible, Inc.
