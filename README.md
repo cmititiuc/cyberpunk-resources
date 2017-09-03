@@ -43,6 +43,8 @@
 
 [The Cyberpunk Project - Information Database](http://project.cyberpunk.ru/idb/)
 
+[The Cyberpunk Project (Mirror)](http://irc.liber-mundi.org/cp_project.php?lng=us)
+
 ## discussions
 
 [Capturing the essence of Cyberpunk](https://scifi.stackexchange.com/questions/2383/capturing-the-essence-of-cyberpunk/2384)
