@@ -52,3 +52,7 @@
 [Cyberpunk in 2017 - discussion](https://www.reddit.com/r/Cyberpunk/comments/6d0vxo/cyberpunk_in_2017_discussion/)
 
 [Cyberpunk or Retrofuturism](https://www.reddit.com/r/RetroFuturism/comments/64i5p2/cyberpunk_or_retrofuturism/)
+
+## videos
+
+[Cyberpunk Anime](https://www.youtube.com/watch?v=23HPiGe6WW4)
