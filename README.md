@@ -29,3 +29,5 @@
 ## discussions
 
 [Capturing the essence of Cyberpunk](https://scifi.stackexchange.com/questions/2383/capturing-the-essence-of-cyberpunk/2384)
+
+[https://www.reddit.com/r/Cyberpunk/comments/6d0vxo/cyberpunk_in_2017_discussion/](Cyberpunk in 2017 - discussion)
