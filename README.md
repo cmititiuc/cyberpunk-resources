@@ -22,6 +22,12 @@
 
 [Cyberpunk Anime: A Comprehensive List of Everything](https://www.exolymph.news/2016/06/04/cyberpunk-anime-comprehensive-list/)
 
+[Cyberpunk - a short story by Bruce Bethke](http://www.infinityplus.co.uk/stories/cpunk.htm)
+
+[Cyberpunk Games](http://lateblt.tripod.com/cybgames.htm)
+
+[Cyberpunk Cinema: Valuing The Virtual](https://the-artifice.com/cyberpunk-cinema/)
+
 ## games
 
 * Invisible, Inc.
@@ -58,6 +64,8 @@
 [Cyberpunk or Retrofuturism](https://www.reddit.com/r/RetroFuturism/comments/64i5p2/cyberpunk_or_retrofuturism/)
 
 [Cyberpunk Anime: A Comprehensive List of Everything](https://www.reddit.com/r/Cyberpunk/comments/4mlbci/cyberpunk_anime_a_comprehensive_list_of_everything/)
+
+[Why Are There So Few Modern Cyberpunk Games?](https://www.reddit.com/r/Games/comments/2gh33s/why_are_there_so_few_modern_cyberpunk_games/)
 
 ## videos
 
