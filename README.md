@@ -72,7 +72,8 @@
 [Realistic cyberpunk](https://www.reddit.com/r/suggestmeabook/comments/2tmund/realistic_cyberpunk/)
 
 [Post-Cyberpunk: What are the most realistic (likely) futures you've seen in media?](https://www.reddit.com/r/Cyberpunk/comments/4e2bnv/postcyberpunk_what_are_the_most_realistic_likely/)
-[Cyberpunk (Near Future) - A Realistic Look at the Future ](http://www.giantitp.com/forums/showthread.php?367867-Cyberpunk-(Near-Future)-A-Realistic-Look-at-the-Future)
+
+[Cyberpunk (Near Future) - A Realistic Look at the Future ](http://www.giantitp.com/forums/showthread.php?367867-Cyberpunk-Near-Future-A-Realistic-Look-at-the-Future)
 
 ## videos
 
