@@ -28,6 +28,8 @@
 
 [Cyberpunk Cinema: Valuing The Virtual](https://the-artifice.com/cyberpunk-cinema/)
 
+[Notes Toward a Postcyberpunk Manifesto](https://news.slashdot.org/story/99/10/08/2123255/notes-toward-a-postcyberpunk-manifesto)
+
 ## games
 
 * Invisible, Inc.
