@@ -30,6 +30,8 @@
 
 [Notes Toward a Postcyberpunk Manifesto](https://news.slashdot.org/story/99/10/08/2123255/notes-toward-a-postcyberpunk-manifesto)
 
+[Optimism and Access: The Line Between Cyberpunk and Post-Cyberpunk](https://www.tor.com/2016/06/08/optimism-and-access-the-line-between-cyberpunk-and-post-cyberpunk/)
+
 ## games
 
 * Invisible, Inc.
