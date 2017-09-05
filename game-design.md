@@ -67,3 +67,5 @@
 [The Ultimate Guide To World-Building: How To Write Fantasy, Sci-Fi And Real-Life Worlds](https://writersedit.com/fiction-writing/the-ultimate-guide-to-world-building-how-to-write-fantasy-sci-fi-and-real-life-worlds/)
 
 [Animals on Land](http://www.world-builders.org/lessons/less/les9/Vles9.html)
+
+[A Wargame 55 Years in the Making (Part 3)](http://general-staff.com/a-wargame-55-years-in-the-making-part-3/)
