@@ -71,3 +71,5 @@
 [A Wargame 55 Years in the Making (Part 3)](http://general-staff.com/a-wargame-55-years-in-the-making-part-3/)
 
 [https://www.youtube.com/watch?v=i7tdJpf6Pnc](Lets build an online RTS game together - JavaScript RTS game development series - Part 1)
+
+[Living Off The Land: Delusions and Misconceptions About Hunting and Gathering](http://woodtrekker.blogspot.com/2013/09/living-off-land-delusions-and.html)
