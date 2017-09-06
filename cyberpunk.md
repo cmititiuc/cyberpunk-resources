@@ -8,7 +8,7 @@
 
 [Cyberpunk](https://www.goodreads.com/genres/cyberpunk)
 
-[Here Are 21 Essential Cyberpunk Books That You Absolutely Should Read](https://www.gizmodo.com.au/2016/01/the-essential-cyberpunk-reading-list/)
+[The Essential Cyberpunk Reading List](http://io9.gizmodo.com/the-essential-cyberpunk-reading-list-1714180001)
 
 [The 11 best science fiction and fantasy novels of 2016](https://www.theverge.com/2016/12/28/13792040/sci-fi-fantasy-book-year-in-review-best-of-2016)
 
@@ -31,6 +31,10 @@
 [Notes Toward a Postcyberpunk Manifesto](https://news.slashdot.org/story/99/10/08/2123255/notes-toward-a-postcyberpunk-manifesto)
 
 [Optimism and Access: The Line Between Cyberpunk and Post-Cyberpunk](https://www.tor.com/2016/06/08/optimism-and-access-the-line-between-cyberpunk-and-post-cyberpunk/)
+
+[Top 10 cyberpunk Graphic novels and Comics](https://www.goodreads.com/list/show/88037.Top_10_cyberpunk_Graphic_novels_and_Comics)
+
+[Amazon Hot New Releases](https://www.amazon.com/gp/new-releases/digital-text/6401749011)
 
 ## games
 
@@ -58,6 +62,8 @@
 [The Cyberpunk Project - Information Database](http://project.cyberpunk.ru/idb/)
 
 [The Cyberpunk Project (Mirror)](http://irc.liber-mundi.org/cp_project.php?lng=us)
+
+[Mondo 2000](http://www.mondo2000.com/)
 
 ## discussions
 
