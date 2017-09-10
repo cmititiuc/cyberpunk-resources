@@ -65,6 +65,8 @@
 
 [Mondo 2000](http://www.mondo2000.com/)
 
+[CyberPunkReviews](http://www.cyberpunkreview.com/)
+
 ## discussions
 
 [Capturing the essence of Cyberpunk](https://scifi.stackexchange.com/questions/2383/capturing-the-essence-of-cyberpunk/2384)
